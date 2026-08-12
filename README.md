@@ -1,2 +1,3 @@
-
+ 
 Dans la seconde moitie, du 21 eme siecle, le monde ait connu de grands boulversements. Avec le processus de la mondialisation, le monde se dirige vers un nouvel ordre mondial, dont l'expression a ete cite pour la premiere fois par Francklin D. ROOSEVELT dans un discours apres la segonde guerre mondiale. Avec les progres techniques, c'est devenu une impitoyable fatalite qui conduira inexorablement a la fin du monde. d'apres cedrtaines analyses, on considere le processus du ''Nouvel ordre mondial '' comme etant le sens de l'histoire, malgre formellement controverses.
+la crise de 1929; c'est une periode de surproduction par raport a la demmende solvable .cette crise a commencer dans la ville de new-york par une chrash bossier d'ou l'appelation un jeudi noir
